@@ -13,6 +13,13 @@ Estoy siempre en la búsqueda de mejorar y aprender, considerando que es fundame
 
 Agradezco su interés en mi perfil.
 
+
+Datos de contacto:
+
+email: rojasrodrigo@live.com
+tel: 3704804510
+https://www.linkedin.com/in/rodrigo-rojas-9b3275216/
+
 <!--
 **rojassrodrigo/rojassrodrigo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
